@@ -1,0 +1,1 @@
+cada dia que pasa te veo mas bonita , le doy gracias al cielo por haberme dado tu querer , tu llegaste justo cuando yo mas nesesitaba , alviando la herida que habia dejado otro querer , le doy gracias al cielo por haberte puesto en mi camino.
